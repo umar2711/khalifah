@@ -1,7 +1,7 @@
 28/MAY/2020
                                                                                                                               
 
-                  KALIMAH TOYYIBAH
+                  KALIMAH TAYYIBAH
 
 BAB 1 :IMAN
 
