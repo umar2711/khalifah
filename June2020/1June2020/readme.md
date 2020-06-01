@@ -1,3 +1,3 @@
          SURAH
          
-Surah Yasin-<r/3>
+Surah Yasin-<R/3>
