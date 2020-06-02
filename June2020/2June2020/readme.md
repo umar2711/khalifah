@@ -1,12 +1,12 @@
         2June2020
       KALIMAH TAYYIBAH
       
-Kalimah Tayyibah #5-
+Kalimah Tayyibah Iman #5-
 
-Kalimah Tayyibah #6-
+Kalimah Tayyibah Iman #6-
 
-Kalimah Tayyibah #7-
+Kalimah Tayyibah Iman #7-
 
-Kalimah Tayyibah #8-
+Kalimah Tayyibah Iman #8-
 
-Kalimah Tayyibah #9-
+Kalimah Tayyibah Iman #9-
