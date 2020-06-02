@@ -9,6 +9,8 @@ Kalimah Tayyibah Iman #7-https://www.youtube.com/watch?v=O9vt-u0nafo
 
 Kalimah Tayyibah Iman #8-https://www.youtube.com/watch?v=l1qPluAFz0U
 
-Kalimah Tayyibah Iman #9-https://www.youtube.com/watch?v=bTYyNBA6rdo
+Kalimah Tayyibah Iman #9-https://www.youtube.com/watch?v=DX6e2q-EdO0
 
-Kalimah Tayyibah Iman #10-https://www.youtube.com/watch?v=pKKj-sFHpjg
+Kalimah Tayyibah Iman #10-https://www.youtube.com/watch?v=bTYyNBA6rdo&t=45s
+
+Kalimah Tayyibah Iman #11-https://www.youtube.com/watch?v=pKKj-sFHpjg
