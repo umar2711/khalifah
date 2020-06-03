@@ -6,4 +6,4 @@
 
 2.Surah At-Takwir-(https://www.youtube.com/watch?v=pNnZnbHBwCs)
 
-3.Surah Al-Infitar-(
+3.Surah Al-Infitar-(https://www.youtube.com/watch?v=MdxaWr9vhtA)
