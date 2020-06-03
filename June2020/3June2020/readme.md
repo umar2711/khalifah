@@ -2,7 +2,7 @@
               
                JUZ'AMMA
                
-1.Surah Abasa'-(
+1.Surah Abasa'-(https://www.youtube.com/watch?v=YJtrxn7YQx0)
 
 2.Surah At-Takwir-(
 
