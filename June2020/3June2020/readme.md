@@ -2,8 +2,8 @@
               
                JUZ'AMMA
                
-Surah Abasa'-
+1.Surah Abasa'-(
 
-Surah At-Takwir-
+2.Surah At-Takwir-(
 
-Surah Al-Infitar-
+3.Surah Al-Infitar-(
