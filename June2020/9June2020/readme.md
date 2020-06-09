@@ -4,8 +4,8 @@
          
 Surah Al-A'laa-(https://www.youtube.com/watch?v=0nQDW7YoIQY)
 
-Surah Al-Ghasyiah-(
+Surah Al-Ghasyiah-(https://www.youtube.com/watch?v=_nlYJefZrkA)
 
-Surah Al-Fajr-(
+Surah Al-Fajr-(https://www.youtube.com/watch?v=ltZ80-0LuUc)
 
-Surah Al-Balad-(
+Surah Al-Balad-(https://www.youtube.com/watch?v=KtTC3tg0Vqg)
