@@ -15,9 +15,3 @@
  Solah Fardhu #6-()
  
  Solah Fardhu #7-()
- 
- Solah Fardhu #8-()
- 
- Solah Fardhu #9-()
- 
- Solah Fardhu #10-()
