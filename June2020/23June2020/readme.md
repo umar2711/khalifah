@@ -2,7 +2,7 @@
       
       JUZ'AMMA
       
-1.Surah At-Tin-()
+1.Surah At-Tin-(https://www.youtube.com/watch?v=fsciGGED2WQ)
 
 2.Surah Al-Alaq-()
 
