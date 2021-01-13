@@ -6,11 +6,7 @@
 <img src="IMG-20210110-WA0002.jpg"></img><br>
 <img src="IMG-20210110-WA0011.jpg"></img><br>
 <img src="IMG-20210111-WA0008.jpg"></img><br>
+<img src="IMG-20210112-WA0020.jpg"></img><br>
 <img src=""></img><br>
 <img src=""></img><br>
-<img src=""></img><br>
-<img src="IMG-20210106-WA0021.jpg"></img><br>
-<img src="IMG-20210106-WA0021.jpg"></img><br>
-<img src="IMG-20210106-WA0021.jpg"></img><br>
-<img src="IMG-20210106-WA0021.jpg"></img><br>
 
